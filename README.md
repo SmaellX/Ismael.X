@@ -1,4 +1,4 @@
-### Bem-vindo(a) ao perfil de SmaellX 😁
+### Bem-vindo(a) ao perfil de SmaellX ✌😎 
 
  <div>
    <a href="https://github.com/SmaellX">
